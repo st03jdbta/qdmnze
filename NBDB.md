@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新希望全产业链布局：从饲料到养殖的协同优势解析</h3><br><p>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>通威股份全产业链成本控制：光伏硅料环节的盈利韧性</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>赛力斯单日大涨8.3%，问界新车型销量引爆市场</h3><br><p>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露</h3><br><p>荷兰经济避免衰退，服务业支撑经济稳定增长。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>中国与中亚五国经贸合作升级，双边贸易额突破千亿。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>特斯拉FSD落地中国，自动驾驶板块集体拉升</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>北方华创设备布局：半导体设备全品类覆盖的龙头价值</h3><br><p>全国酸雨区面积占比降至3.2%，降水质量持续改善。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>中国西电集团整合预期：输配电行业央企整合的价值重估</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>端侧AI应用爆发，手机AI功能月活用户破10亿</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励</h3><br><p>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>餐饮消费促进政策，餐饮连锁标的全线异动</h3><br><p>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次</h3><br><p>东数西算工程新节点开工，IDC算力板块走强。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>www.ituijie.com
