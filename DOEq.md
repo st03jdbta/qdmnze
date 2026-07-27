@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>暑期档电影票房突破200亿元，国产主旋律影片领跑市场。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>国电南瑞电网自动化优势：国内电网信息化龙头的价值</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>互联网平台经济政策回暖，中概股联动标的上涨。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>车联网安全标准出台，车联网板块集体上涨</h3><br><p>上汽集团放量上涨3.5%，新能源汽车出口超预期。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发</h3><br><p>派能科技涨超7.5%，户用储能电池订单饱满。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>锂价连续反弹15%，锂矿板块迎来趋势性行情启动。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>拓普集团放量拉升6.7%，汽车零部件订单超预期。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国统一大市场建设取得阶段性进展，流通成本下降15%</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期</h3><br><p>亚星客车放量上涨3.9%，新能源客车盈利改善。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>宁德时代异动拉升6.2%，海外储能项目持续落地。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>半导体国产替代推进：制造、设备、材料的突破路径。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>www.chtea.ac.cn
