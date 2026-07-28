@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内宠物友好景区破千家，携宠游订单同比增长180%</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>https://guodongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://guuxfa.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://h-youxi.com.cn
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流</h3><br><p>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒。<br><br> | 来源：<code>https://haijiao-luntan.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>https://haijiao-shequ.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>全国金丝猴种群数量突破4万只，多个栖息地生态改善。<br><br> | 来源：<code>https://haijiao-shequ.org.cn
+</code></p><br><br><h3>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://haijiao-wang.com.cn
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://haijiaoluanlun.com.cn
+</code></p><br><br><h3>儿童用药扶持政策，儿科医药标的全线拉升</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://haijiaoluanlun.org.cn
+</code></p><br><br><h3>美的集团全球化运营：家电龙头的海外市场拓展逻辑</h3><br><p>知名私募调研钠电池龙头，量产线投产时间点首次公开。<br><br> | 来源：<code>https://haijiaoluanlunwang.org.cn
+</code></p><br><br><h3>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://haijiaoluntan.org.cn
+</code></p><br><br><h3>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进</h3><br><p>存储模组龙头登陆科创板，AI存储产品出货量超行业预期。<br><br> | 来源：<code>https://haijiaoqianwanziyuanyuanchuang.cn
+</code></p><br><br><h3>大模型轻量化部署方案成熟，中小企业接入成本下降90%</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://haijiaoshequdizhi.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑。<br><br> | 来源：<code>https://haijiaoshequluanlun.cn
+</code></p><br><br><h3>充电桩下乡政策落地，充电桩产业链标的走强</h3><br><p>散户最容易踩的坑：涨一点就卖，跌一点就割，最后两头亏。<br><br> | 来源：<code>https://haijiaoshequrukou.org.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>https://haijiaoshequshipin.cn
+</code></p><br><br><h3>存量房贷利率下调后居民消费回升，旅游酒店板块受益</h3><br><p>全国社区健身站点覆盖率达100%，15分钟健身圈全面建成。<br><br> | 来源：<code>https://haijiaoshequshipin.org.cn
