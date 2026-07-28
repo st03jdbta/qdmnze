@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>正邦科技放量上涨4.5%，债务重组进展顺利。<br><br> | 来源：<code>https://pro-jinbao-sports.com.cn
+</code></p><br><br><h3>尾矿资源综合利用政策，尾矿回收板块走强</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>https://pro-js-tiyu.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>https://pro-leisusports.com.cn
+</code></p><br><br><h3>2026年文旅市场全面繁荣，文化自信融入大众日常生活</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>https://pro-manguan-vip.com.cn
+</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://pro-pingbosports.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>https://pro-weide-sports.com.cn
+</code></p><br><br><h3>卫星互联网频率分配落地，卫星制造板块集体上涨</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>https://pro-xingkong-fun.com.cn
+</code></p><br><br><h3>QFII集中调研快递物流龙头，单票盈利创历史新高</h3><br><p>大北农异动拉升3.7%，种业业务贡献新增量。<br><br> | 来源：<code>https://pro-yameisports.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>https://pzhan-shipin.com.cn
+</code></p><br><br><h3>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>https://qiangjian-xinwen.com.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>基金公司集体到访建筑光伏一体化标的，订单爆发式增长。<br><br> | 来源：<code>https://qidonghua.com.cn
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>科达利结构件精密制造：锂电池结构件龙头的全球份额。<br><br> | 来源：<code>https://qiezi-shipin-wu.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%。<br><br> | 来源：<code>https://qiezi-shipin.cn
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>科大讯飞AI技术落地：从技术研发到商业化变现的拐点。<br><br> | 来源：<code>https://qiezishipinzaixianguankan.cn
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://qiezivideos.cn
+</code></p><br><br><h3>体育旅游市场爆发，上半年马拉松赛事带动旅游消费超百亿</h3><br><p>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力。<br><br> | 来源：<code>https://qingqingcao-shipin.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>https://qingqingcao-shipin.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>天合光能N型技术优势：光伏行业技术迭代下的领先地位。<br><br> | 来源：<code>https://qingqingcao.com.cn
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争。<br><br> | 来源：<code>https://qinwenjiejie.net.cn
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>中国中冶冶金工程高增，单季业绩预告超预期。<br><br> | 来源：<code>https://qitianda-xing.com.cn
