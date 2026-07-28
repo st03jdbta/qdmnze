@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>伊利股份产品矩阵：全品类乳制品的市场覆盖优势。<br><br> | 来源：<code>https://huangyou-daquan.com.cn
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://huangyou-tuijian.com.cn
+</code></p><br><br><h3>拉美多国签署货币互换协议，减少对美元依赖</h3><br><p>油气增储上产政策，油气设备板块集体上涨。<br><br> | 来源：<code>https://huangyou-wang.com.cn
+</code></p><br><br><h3>葛洲坝水电工程技术：全球水电建设龙头的技术积累</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://huangyou-wangzhan.com.cn
+</code></p><br><br><h3>义务教育优质均衡创建推进，千个县区通过国家级评估</h3><br><p>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入。<br><br> | 来源：<code>https://huangyou-xiazai.com.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>https://huangyou-zuofang.com.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩。<br><br> | 来源：<code>https://huangyoumianfeixiazai.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>游资知名席位联手买入中远海控7500万，集运标的获追捧。<br><br> | 来源：<code>https://huangyouquan.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>金融大模型赋能投研，AI研报生成效率提升5倍。<br><br> | 来源：<code>https://huangyoushouyou.com.cn
+</code></p><br><br><h3>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径</h3><br><p>AI语音合成技术突破，克隆声音仅需3秒样本。<br><br> | 来源：<code>https://huangyoutuijian.com.cn
+</code></p><br><br><h3>千兆城市建设全覆盖，光通信板块走强</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://huangyoutuijianshouji.com.cn
+</code></p><br><br><h3>国内演出市场票房上半年突破200亿，演唱会经济爆发</h3><br><p>城市更新行动政策，城市更新板块走强。<br><br> | 来源：<code>https://huangyoutuijianwangye.com.cn
+</code></p><br><br><h3>高标准农田建设规划，农田基建板块集体上涨</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>https://huangyouwangyeban.org.cn
+</code></p><br><br><h3>呼吸道疾病高发，儿科医药板块集体上涨</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://huangyouwangyeyouxi.com.cn
+</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用。<br><br> | 来源：<code>https://huangyouwangzhan.com.cn
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://huangyouwangzhanfenxiang.com.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>卫星互联网星座加速组网，低轨卫星板块全线走强。<br><br> | 来源：<code>https://huangyouxi.com.cn
+</code></p><br><br><h3>恒力石化异动拉升3.8%，炼化行业盈利边际改善</h3><br><p>中国花游队世锦赛集体项目夺冠，实现金牌零的突破。<br><br> | 来源：<code>https://huangyouxiaji.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研虚拟电厂标的，订单爆发式增长披露</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://huangyouxiangji.com.cn
+</code></p><br><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线</h3><br><p>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑。<br><br> | 来源：<code>https://huangyouxiaoxiong.com.cn
