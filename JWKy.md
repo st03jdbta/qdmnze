@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分46秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://xiaoyuandongmanku.com.cn
+</code></p><br><br><h3>厄尔尼诺现象加剧，农业抗旱标的全线走强</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://xiaozemaliya.com.cn
+</code></p><br><br><h3>山东高速放量上涨2.7%，路网资产盈利稳健</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>https://xie-shen-chang-guan.com.cn
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>https://xin-91.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>中国与中东欧国家合作升级，互联互通项目持续落地。<br><br> | 来源：<code>https://xin-pujing-yingshi.com.cn
+</code></p><br><br><h3>全国非物质文化遗产传承人超10万名，师徒传承体系完善</h3><br><p>韦尔股份异动拉升5.1%，CIS芯片需求回暖。<br><br> | 来源：<code>https://xin-pujing-yule.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>https://xin-pujing-yulecheng.com.cn
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://xin91shipin.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>深高速放量上涨2.5%，深圳区域路网资产优质。<br><br> | 来源：<code>https://xin91shipin.com.cn
+</code></p><br><br><h3>紫金矿业创阶段新高3.2%，铜金产量持续超预期</h3><br><p>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>全国老字号品牌超万家，国潮复兴带动传统产业转型升级</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>中国茶文化申遗成功，成为人类非物质文化遗产代表作。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>泸州老窖品牌升级：国窖1573的高端化成长路径解析</h3><br><p>百度智能云大模型平台开放，百万开发者接入生态。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>天合光能放量上涨5.5%，N型组件渗透率持续提升</h3><br><p>海康威视涨超4.7%，AI安防业务收入增速回升。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>核电新项目审批重启，核电产业链标的全线拉升</h3><br><p>机构席位大额买入拓普集团9200万，零部件龙头获长线布局。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
